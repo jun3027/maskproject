@@ -17,4 +17,4 @@ The outbreak of corona virus changed our society in many ways. The biggest chang
 
 ## Youtube
 
-  [Youtube link](https://youtu.be/)
+  [Youtube link](https://www.youtube.com/watch?v=GxJ28kCfUOk)
